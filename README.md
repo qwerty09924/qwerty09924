@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @qwerty09924 please just cntrl cv this into your game if you use something of mine or give credit
+- personel note
+- im suck at codeing
